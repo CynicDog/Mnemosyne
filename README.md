@@ -1,4 +1,3 @@
 # Mnemosyne
 
-
-![image](https://github.com/user-attachments/assets/aef6c877-87e9-41fc-bc54-89acafbdd1d9)
+https://excalidraw.com/#room=e6cb525097924d7d632b,gLWzDnkYiJR-fVGyLL1AiQ 
